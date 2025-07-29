@@ -1,4 +1,0 @@
-# cleansing 240, 462
-
-cleansing 240, 462
-climate 22
