@@ -1,0 +1,692 @@
+# Chapter 2 Keylonta Science and Abduction
+
+Interdimensional Communication
+In your present culture there is much fear and misinformation
+surrounding the occurrence of multidimensional communication.
+Superstition and science both have added their share of negative
+interpretation of events of this nature. Popular consensus would place
+such events of communication into the categories of intentionally
+contrived hoax or into that of mental deficiency on the part of those
+receiving such communications. Religious factions, on the other hand,
+most often place such events under the category of “demonic” activity
+or attribute such communications to the work of some “evil” force.
+These ideas and misinterpretations are a direct result of the “official
+reality program” and its brainwashing. So much effort has been put into
+devaluing and negating the method of communication of knowledge that
+the true value of the knowledge is lost. This is unfortunate, as it leaves
+the majority of the human populace thinking that such communications
+do not really exist as such, or that if they do exist they are of some
+“evil” or mal-aligned source. This makes it quite difficult for other
+dimensional and other time helpers to offer their assistance to humans
+directly, as so few of you are receptive to the method by which that
+assistance is offered.
+It is our hope that in providing you with information about the
+true mechanics of multidimensional communication that you will be
+able to step outside of “the program” enough to put your prejudgments
+aside and learn something new and quite valuable. In your present time
+certain terms have been used to describe this process of information
+exchange: “telepathy,” “mediumship,” “automatic writing,”
+“channeling.” All of these terms give you a very vague conceptual
+
+understanding as to the true dynamics of this phenomenon. If you do not
+understand the mechanics of the process then it will be difficult for you
+to decipher the source from which the phenomena emerge. Just as is the
+case with UFO sightings, “what it is” cannot be discovered using only
+one explanation. UFOs can be a variety of things. So too can be what
+appears to you as multidimensional communication.
+Not all UFO sightings imply live contact with other life forms,
+though some are indeed precisely such contacts. In the event of
+multidimensional communications, again, not all such communications
+imply live contact with other-dimensional or inter-time beings, but some
+of these communications are indeed genuine contact with beings from
+systems other than your own. Learning to differentiate between the
+various possible explanations is necessary before an accurate
+assessment of the phenomena can be achieved in studying both UFOs
+and multidimensional communication.
+Some instances of subtle communications (we will use this term
+henceforth to replace the rather lengthy phrase of “multidimensional
+communication”) can be attributed to conditions existing within the
+mind of the receiver, and others are indeed intended “fakes.” Still other
+such events are quite legitimate occurrences of subtle communications
+with a “live” source, be it interdimensional, inter-time, intergalactic or
+originating from within your own Earth system. The latter you most
+often call “telepathy,” or “mind-to-mind” communications, but there is
+much you do not yet understand about the workings of telepathy alone.
+The important thing for you to understand at this time is that in all such
+cases of communication you are dealing with far more than the simple
+“linking of minds” as your term “telepathy” suggests. You are dealing
+with a highly sophisticated form of communication that is in itself a
+language. It is the language of light, sound, symbols and energy, that in
+our system is known as Keylonta. In our system Keylonta is the
+foundation for all other forms of learning, and it exists as a highly
+technical science and creative art form.
+The Language of Keylonta
+Keylonta is not merely a language as you think of it, but a tool,
+communications being one of its applications. Its dynamics are used in
+teaching and healing, but also in the literal formation of reality
+constructions where it serves as the structure upon which manifestations
+
+are built. The codes of the Time-Portal System and the Dimensional
+Lock System are found within the workings of Keylonta, and it is also
+the method used by those wishing to communicate with your world
+through those systems. We will provide you with much more
+information on the language of Keylonta and its applications in other
+writings, but for now we simply desire to familiarize you with this
+dynamic so that you may begin to evolve your ideas about the nature of
+subtle communications. The point we would most like you to
+understand is that Keylonta, like any language, is a tool. In and of itself
+it cannot be judged as “good or bad,” “godly or evil,” helpful or
+detrimental to the human collective. It is a tool which can be used to
+convey meaning. The intention and skill with which that tool is used
+will determine its value. It is time that you put your fears and
+superstitions aside and begin learning the language of the stars—the
+language of your ancestors, the language that will allow you to evolve
+into multidimensional beings who possess technologies and wisdom
+beyond those now available to the visitors presently interacting with
+your Earth system. Do not let the “official program” rob you any
+longer of the knowledge that is your birthright and inheritance.
+Now that we have given you some information on the method
+by which the helpers (and others) communicate with you, we will offer
+some insight into why this method of contact is presently selected, as
+opposed to other alternative means of contact such as mass landings of
+spacecraft. For reasons that should be obvious to you, those wishing to
+assist or make their presence known to you cannot viably set a mother
+ship down upon the lawn of the White House and schedule a press
+conference! Indeed, if the visitors were able to hold off the Zeta and the
+Interior Government (not to mention your “official” government) long
+enough to stage such an event, their message and intentions would be
+lost amidst the panic and hysteria that such an event would generate
+within your ill-prepared masses.
+The Interior Government, Zeta and official governments have
+done such a good job at programming the masses into fear and disbelief
+reaction patterns that it would literally be useless to the visitors to
+attempt to reach you as a collective. The public has been brainwashed
+into denying the validity of their own perceptions and those of their
+fellow humans. For this reason visitors (both of the helpful and harmful
+kinds) attempt to contact individuals or small groups of individuals that
+
+show some sign of receptivity to their intended contact. (The non-
+helpful visitors will often choose those whom they believe are easily
+manipulated through the Keylonta codes.)
+For centuries your people have been taught to subjugate their
+own authority and have delegated their ability to perceive clearly to
+objective authority structures such as government and religion. All of
+you have a right to know the truth about the conditions that directly
+affect you. Unfortunately for you, your governments do not agree with
+this premise. So as a collective you are quite certainly ill-prepared to
+meet directly ET visitors, no matter how benign their agenda may be.
+Part of the reason that many advances have been withheld from
+the general scientific and public communities is that this knowledge
+would give individual citizens the power to better direct their own lives,
+their health, their economic standing and their own protection. If the
+public had access to such abilities the governments could no longer use
+such tactics as fear and intimidation to illicit blind obedience. They
+would lose control over their people and their peoples resources as the
+people gained control over themselves. So the “official program” lie has
+been created and perpetuated to keep each of you in the dark, fearful and
+dependent upon the approval and support of outside authorities. You
+have been brainwashed and betrayed, and that also applies to those of
+you who think you are responsible for creating and maintaining the
+official program. Most of you have lost sight of the fact that alternative
+perspectives exist. Most of you have lost sight of what you have lost in
+succumbing to the program’s tunnel vision. Some of you, in reading
+these words, will know the truth as these ideas move through you—you
+will simply know. And at first you will probably find anger, and beneath
+the anger—fear. For if what you have been brainwashed into believing
+is not truth, then what is true? It will feel as if you are upon a precipice
+overlooking an endless abyss, and you will not know where to turn, or
+whom to trust, or where to look for answers. Looking within (perhaps
+for the first time?) to the core of your own spirituality will be the light
+that leads you through this darkness.
+Many of you will reject this data, perhaps heatedly, for that is
+seemingly far easier than facing the raw fear that can be generated by
+seeing the truth for the first time. Not all of you are ready to see the
+truth, for within the lies there existed the illusion of safety and comfort,
+and an innocence to the loss of freedom and integrity that the official
+
+program has created. You may choose to take the stance that “what you
+don't know won't hurt you.” Indeed, if it is hurtful it will hurt you, but in
+choosing blindness you may not be aware of the harm being done. You
+may not realize the sacrifice you have made until it is too late and death
+or disease have overtaken you.
+We care for all of you. And we hold all of you in high enough
+regard to offer you the option of viewing your reality as it exists, so you
+may make your choice consciously as to what you will believe. We
+exhibit far more personal respect and honor for you than do your
+governments and religious organizations who employ codes of
+discrimination, elitism, secrecy and the withholding of knowledge and
+resources. Knowledge is intended for the many who are open to
+receiving it, not for the few who seek to use it to control, disempower,
+and manipulate the many it was intended to serve. Many humans within
+positions of power need to learn this simple lesson. It is the gift of
+knowledge that we offer you—can you accept the gift?
+And so we have explained to you some of what you are up
+against in your evolution toward enlightenment. We have given you an
+idea of who the players are, where they come from, and what agendas
+they hold. Now we will let you know the rest of the story about the
+greater realities taking place within your present time, for those who
+are ready—for those who chose to know what is taking place within the
+universe around them.
+Subconscious Symbol Codes
+We have explained to you how the Zeta, Aethien, Ranthia and
+other time-portal and interdimensional groups are able to create
+“perceptual interference” or “sensory interruption” in humans, and how
+these tactics are presently being used in regard to some of your “UFO
+abduction” experiences. The aforementioned Keylonta codes, which
+govern the activities of the subconscious symbol codes contained within
+human DNA, are used to implant and orchestrate these sensual
+deceptions. All of these groups are capable of creating such events
+because they understand the mechanics of the human bio-electric system
+and its operations within the living organism. If they did not understand
+the relationships between form and energy they would not be able to use
+such technologies, nor would they be able to maneuver within the Time-
+Portal and Dimensional Lock Systems. If they did not know the
+
+language of Keylonta they would be trapped within their own reality
+and time-space systems just as your species is presently trapped within
+the three-dimensional Earth system. They are able to traverse other
+reality systems and to direct their own biologies because they know
+things that you and your scientists do not yet know.
+Because such cultures possess this knowledge that yours
+presently lacks they are able to manipulate your biology and your
+perceptual field and thus your consciousness. Literally all of the groups
+mentioned use this knowledge to interact with you, some for the
+purposes of helping you to grow, others to keep you from evolving into
+your full potentials. The human biology speaks a language quite
+different than that of the “conscious mind” (as you understand that
+facility). It is a language that you have consciously forgotten, the
+language of energy relationships—Keylonta. It is the foundation upon
+which all of your languages and modes of perception are built. We have
+come to refresh your memory and to remind you of your “native
+tongue,” so that you may once again begin consciously using the
+language contained within your cellular structure. The language of
+living knowledge is contained within every molecule of your three-
+dimensional, matter-clad world. You had help in forgetting this
+language, and so now it is appropriate that you should have help in
+remembering.
+The Zeta Agenda
+In order to understand the Zeta agenda and the dramas unfolding
+within your universe you must have some idea of the workings of
+Keylonta. It is the language of the symbol codes (“subconscious” from
+your perspective), the intrinsic, interior geometric-electric and magnetic
+structures that create the foundations for all form and structure within
+the dimensional systems, a language of light, sound, pulsation and
+vibration of energy. And the method by which form is created and
+maintained within your system. It represents the living codes of matter
+and all biologies built upon them. The Keylonta codes set everything
+from the type of body you will manifest through the genetics of your
+biology to the very chemical, hormonal and energetic functions which
+keep that body in motion. It is the key to your known and unknown
+universe.
+
+The Zeta, as well as the helping ET groups, are aware of these
+codes and how they can be used in relation to the human organism and
+the Earth system. The Zeta have, from the beginnings of their
+interaction with you, used the Keylonta codes to direct and manipulate
+human perception. It is through these codes and an active knowledge of
+their usage that the Zeta are able to manufacture the perceptual
+interference and sensual interruption previously mentioned.
+We are not trying to frighten you, but if you do not soon take
+responsibility for mastering the mechanics of your own biology, you
+will be “sitting ducks,” so to speak, for those who do understand these
+workings. We do not recommend waiting until your governments,
+scientists or official medical communities figure out how to do this for
+you, because they may be one of the last to know the mechanics of the
+inner workings. Their inherent belief structures are prejudiced against
+the very methods that will bring this knowledge to you. Responsibility
+for biological mastery lives with the individual, each individual, for only
+the intrinsic life force within each organism has full access to the code
+combinations unique to its form. You can learn to master your own
+biological codes by working through your own consciousness and
+greater identity, but no objective organization will be able to decipher
+the intimate balances upon which your biology is built. There are
+practices which can assist you in your quest for biological mastery, and
+we will offer some of these in other writings, when we explore in
+greater detail the language and applications of Keylonta.
+Through Keylonta mechanics your cellular structure can be
+altered. Your bodies can be healed, your consciousness expanded. The
+mysteries of your three-dimensional system can be unraveled. Through
+Keylonta enlightenment will one day belong to your species. But until
+that day Keylonta can be used in ways that do not benefit your
+development, used by those who have the knowledge but who do not as
+yet possess the wisdom to use these gifts as they were intended—those
+such as the Zeta.
+These codes are presently being used in a number of ways by
+various time-portal and interdimensional groups (such as ourselves, as
+we communicate with you). Keylonta is the language for
+communicating through the time and dimensional portals. Though you
+receive these communications in the language most familiar to you, and
+in the linear progression of thought and word that is characteristic of
+
+your time-space coordinate, the true communication is passed on first to
+your cellular structure. It is placed into your DNA codes as minute
+electrical signals. We transmit our communications through the
+interdimensional portals then “fine-tune” our transmission through the
+time-portals into your time-space coordinates. We are able to transmit
+large amounts of data into a vast area in this manner. This information is
+then translated to your level of perception through those individuals
+whose bodies have the ability to pick up and synthesize advanced
+(compared to the average operational frequencies of your present time)
+electrical impulse patterns. All of you have translation abilities to some
+degree, but some of you are more genetically predisposed to this ability.
+Our communications come to you from another dimension,
+through a time-portal system of an Earth that exists parallel to your own.
+Our culture lives within that parallel system, but in its own time-portal
+frame it is placed within the future of even that Earth version. These
+Keylonta transmissions, coming from this distant place, will reach those
+in various dimensions and time coordinates who are ready to translate
+them. These communications will become available to those who are in
+need of the knowledge contained within them.
+It is our hope that if you can become aware of Keylonta
+mechanics enough of you will be enabled to develop the tools you need
+to counteract the harmful ways this knowledge is presently being used
+to manipulate you and keep you blind. We cannot “win the game for
+you” in relation to your dealings with the Zeta and other groups, but we
+can offer the tools of knowledge you will need to effectively direct your
+own destinies.
+Now we will explore how the Zeta and other self-interested
+groups are using Keylonta to mislead you.
+Perceptual Interference
+Keylonta is the means by which the Zeta are able to create
+perceptual interference. They have the power through these mechanics
+to literally create mass hallucinations. We do not favor this word of
+your English language but instead prefer to use the word “hologram” for
+its meaning is closer to the actual reality that is taking place. The term
+mental hologram may give you a better idea of the concept we are trying
+to convey.
+
+Through manipulating the impulse codes intrinsic to the human
+biology literal “reality pictures” can be created for the unsuspecting
+human to perceive. We are not speaking here of mental images or
+simple hallucinations, but rather actual three-dimensional reality
+overlays that emerge into the surrounding objective environment. These
+contrived “reality pictures” can be coded to emerge as past memory or
+as present time three-dimensionally objective experience. Unlike a
+simple hallucination the “reality picture” not only affects the individual
+or group that is being altered, but will also affect anyone coming into
+the encoded perimeters of its boundaries. It is as if someone created a
+“virtual reality” picture for you to walk through, and its contours are so
+seamless compared to your “real” reality that you do not realize
+anything has changed. Events can be manufactured for you in this way,
+without your conscious knowledge or permission. In such cases “what
+you don't know” could very well hurt you, and you might not be aware
+of what harm is being done. We refer to these “reality pictures” or
+“experiential overlays” as holographic inserts. It is time that humans
+became aware of the existence of such technologies, for they have been
+used throughout your history to alter and bend the nature of your
+historical development.
+Holographic Inserts
+Holographic inserts work in a number of ways. First of all, in
+order to create them a working comprehension of the relationships
+between biology, energy and perception is required. Humans in your
+system presently do not have such a working knowledge.
+When the mechanics of energy are understood (as they are by
+groups such as the Zeta), it is quite easy to impulse the base DNA codes
+of humans to carry an altered or contrived “program” or electrical
+imprint. As the base DNA code is electrically altered the entire
+physiology of the individual on the chemical and hormonal level is
+altered. The neurological structure then processes this altered code and,
+through the intrinsic mechanisms of bodily matter, brain and senses, a
+literal hologram is manufactured. This process may be difficult for you
+to understand as your sciences do not as yet realize the rudimentary
+mechanics of how the illusion of three-dimensionality itself is created
+through the human organism. The human body has not as yet been
+identified as the living “holographic projection mechanism” that it is in
+
+actuality. Though these understandings would be helpful to you, they
+are not necessary for you to begin working with Keylonta codes. Even if
+you do not fully understand the “how” of these mechanics you can
+benefit by learning technology that will better allow you to direct the
+result of these energy manipulations.
+As the neurological structure processes the altered codes, the
+individual will perceive outside of himself, as three-dimensional matter
+the images and events or “reality pictures” that were programmed into
+his DNA. Some of these codes can be contrived to become “permanent”
+additions to the original DNA base code. This process can be used to
+assist humanity in reaching great levels of spiritual enlightenment,
+physical health and beauty, and mental and emotional expansion. But it
+can also be used to create horrific traumas upon the human biological
+organism and the consciousness that depends upon this organism for its
+three-dimensional life.
+Holographic inserts are presently being used against you by the
+Zeta and other groups. If you can learn some of these mechanics
+(through Keylonta) you can stop them from manipulating you. You can
+protect yourselves and keep your perceptions clear. And you can grow.
+Events have already been set in motion to begin using
+holographic inserts on a mass level. This is part of the aforementioned
+Zeta agenda. Individuals have been tested and experimented upon for
+some time as the appropriate processes were fine-tuned. The Zeta are
+now ready to begin using holographic inserts on a mass level, starting
+with small groups and later moving into whole collectives. The Interior
+Government has long allowed such experimentation to take place, and
+they themselves have been the greatest test subjects for the Zeta; they
+succumbed to the very tactics they were trained by the Zeta to employ
+against other humans. Do not be surprised if in years to come you begin
+to see more and more reports of odd happenings witnessed by masses of
+people appearing in your news media and tabloids. Many of these will
+not be “made up” by overzealous reporters, but will mark actual events
+of holographic inserts in operation.
+Next we will discover how holographic inserts have been used
+in relation to what you call the “UFO abduction” phenomena.
+
+Mechanics of Visitor Abduction
+We have explained to you in the beginning of this writing the
+different categories into which UFO phenomena may fall, some being
+benign manifestations of natural phenomena, others being intentional or
+unintentional contact with sentient beings from your or other systems.
+We have explained to you that what appear to be solid-matter physical
+objects are at times illusions created as other dimensional phenomena
+interface with your three-dimensional system. If one were able to
+control and direct the movement of an object through dimensions or
+time portals, and were familiar with the different forms that object takes
+within the various dimensions, it is possible that alterations could
+purposely be made to objects by moving them through dimensions. That
+is, the form of an object in one dimension could be changed by moving
+it into another dimension for alteration, then returning it to its original
+dimension where the other-dimensional alteration would appear as a
+change in form. This process is called transmutation of form, and it is
+accomplished through dimensional transmigration. Familiarity with this
+concept will facilitate your understanding of the nature of the UFO
+abduction phenomenon.
+If an object existed in the form of a rock in your dimension, let
+us say, this rock could be moved into another dimensional frequency,
+altered there, and then returned to its original dimension where the
+alteration would then manifest as form change in terms characteristic of
+that dimension. Your rock for example, could be taken to an adjacent
+dimension and altered, then reemerge as a tree when placed back in its
+original system. How do these mechanics apply to abduction scenarios?
+Quite simply, the human “object” (which is what many Zeta view
+humans as being) is temporarily neutralized using the Keylonta codes—
+perceptual interference is orchestrated. During this sensual interruption
+the human mental awareness (“mental body”) becomes momentarily
+disengaged from the biological structure. The mind or “mental self-
+awareness” is placed in a temporary state of suspended animation. It is
+put “on hold” within the three-dimensional frequency, while the
+biological organism is taken into a different dimensional frequency or
+through a time portal. This part of the process is what creates the
+experience of a seeming “separation of bodies” often reported in
+abduction cases. It seems as though an astral body is being pulled out of
+a physical body, the same experience known as astral projection. (Not
+
+all abduction episodes contain this particular feature, but many do). And
+it is here that many abductees become confused as to whether their
+experiences were “really real” physical events or whether they were
+mental events, hallucinations, dreams or excursions into the “astral
+plane.”
+The reality of what is occurring is that the energy field of the
+mind and that of the cellular pattern of the flesh are being put on
+“different speeds” (different rates of vibrational oscillation). The mind-
+field is accelerated, its rate of oscillation increased, which creates the
+sense data of the lessening of density. Meanwhile the energetic field of
+the molecular structure is decelerated, its rate of oscillation slowed,
+creating the bodily-sensed data of an increase in density. The oscillation
+rates of both of these energy fields are held within a certain interval or
+within a particular ratio, which temporarily disengages the connection
+between them. The mental awareness and the body consciousness thus
+are split, placed within two separate frequency bands. The mind is held
+at a frequency higher than that of the third dimension—its oscillation
+rate is increased. While the mind is accelerated and tuned into a higher
+frequency pattern, the body is decelerated, its oscillation rate slowed,
+tuning it to a lower frequency. In greater terms this maneuver constitutes
+moving the mental awareness into the “future” while placing the cellular
+consciousness in the “past.” After the particular ratio between body and
+mind speeds is reached, the body is then quickly accelerated in
+oscillation, enabling it to “leap” through a time or dimensional portal.
+Thus by manipulating the speeds of various aspects of the bio-energetic
+field a window in time is created, which enables the body-matter to
+move through portals without its form being destroyed.
+In abduction cases that utilize the above manipulations the
+physical body is taken, but it is shape-shifted, literally turned into light
+formations within another time and dimensional frequency. It is first
+taken backward in time to its pre-matter form, then catapulted from that
+condition into the future of that form where the desired manipulations
+are made, and then moved from that future perspective backward
+toward the present where it is then re-engaged to the mental energy
+aspects that had been “put on hold” to await the body's return.
+Alterations to the body are actually carried out while the body is in a
+non-solid form existing as light and sound patterns, but upon the
+integration of the body with the mental facility these alterations then
+
+take on the symbol codes that give the illusion of form. The alterations
+of light appear in memory as the medical experiments so often recalled
+in abductions. To the body and mind these events will indeed appear as
+if they had taken place physically, and in one sense they have, for the
+physical sensory imprint is valid within the present moment focus of the
+consciousness. The remembered events were real but they took place
+within the future where matter-solidity had not yet caught up with them.
+When intersecting these future events with a conscious mind focused in
+the present the events will immediately be translated into the codes of
+the mental body, thus giving solidity of form to the remembered events.
+Memory is stored within the body cells and DNA, and so the events
+experienced in a future time are recorded there, but they will be
+remembered consciously only as the mental body grows to the point
+where it is able to translate that stored data into symbols. The mental
+body can only translate impulses that fall within its range of frequency,
+so within abductions of this kind the remembered events will unfold
+“over time” as the mental awareness grows and expands its frequency
+rate to translate a greater variety of “impulse packages.”
+Alterations that take place during such experiences may take the
+form of physical manipulations, as well as that of remembered events.
+Scars may appear upon the body as the organism reintegrates the
+cellular and mental codes, implants of devices may be located within the
+body, fetuses may be found missing. The body will translate into
+physical reality the events it has encountered and that are stored within
+its imprint, whether those events occurred in the past or the future. (In
+present time you may fall and immediately your body produces a bruise
+which seems to be the result of the fall. In greater reality what you are
+seeing is a complex interplay of electrical impulse manifestations. The
+“result” appears to your conscious mind to have been created through
+the “cause.” The actual manufacturing of the result and cause together
+elude you as they take place within frequencies not within your range of
+translation. The illusion of what you perceive as “cause and effect” is a
+primary base code of the three-dimensional system, so what you
+perceive three-dimensionally will appear to follow that pattern. In
+greater terms both cause and effect exist at once as part of a whole
+pattern, and what you see as this relationship is simply that pattern
+viewed “in pieces.” Because of the alignment of what we call your
+Genetic Time Codes you will perceive one part of the pattern first, what
+
+you know as the “cause.” And the other part of the pattern, what you
+know as the “effect”, following it in time. The bruise and the fall exist at
+once as part of the same pattern, though it appears as if the fall created
+the bruise. In terms of greater reality it could just as easily be said that
+the bruise created the fall, as each exist as part of a whole pattern in
+which the existence of one implies the existence of the other. You will
+see the “cause and effect” as dictated by your Genetic Time Codes,
+rather than the true construction of the entire event and the process of its
+manifestation.). In regard to the manifestations of alterations conducted
+during abduction experiences, the “result” (implant, scar, etc.) exists as
+part of the whole event of the process of the alterations, but you
+perceive it “in pieces,” where as the abduction seems to have taken
+place in the past of your present and was responsible for the creation of
+the effect. What in truth has taken place is that your consciousness, in its
+present moment of focus, has participated in action taking place within
+frequency bands that are both higher and lower than those of your
+present moment frequency. All of these frequency bands exist at once in
+the ever-present now, but you perceive them strung out in linear fashion
+because of the arrangement of your Genetic Time Codes. As your
+consciousness is fragmented into the various frequency bands, then
+reassembled into the frequency of your present moment focus, the
+Genetic Time Codes sort and organize this electrically coded
+experiential data into a pattern that your conscious mind can synthesize
+into linear, sequential reality. The other frequency (which is
+conceptually synonymous with “other time”) events are translated,
+through the biology, into “remembered action” and the “result of that
+action”, which sets in motion the body's innate sensory-projection
+mechanisms that create the physically observable manifestation.
+The important thing for you to realize is that such abduction
+experiences are quite real and valid, just as real as any seemingly
+“normal” event within your three-dimensional reality. Both types of
+events, however, employ mechanics that you are presently unaware of,
+but in the case of the abductions you get a little more of a glimpse as to
+how these mechanics operate. To understand the nature of abductions
+you will begin to find a greater understanding of the nature of three-
+dimensional reality.
+Not all abduction cases involve the transmigration (movement)
+of the physical body through other frequency bands/time
+
+zones/dimensions. Not all human bodies are able to withstand such
+process, some would be destroyed or damaged by this type of
+manipulation. In cases where this transmutation process is employed the
+mind will at first have no recall of the events, missing time is
+experienced as the body and mind reharmonize their respective rates of
+oscillation and build the necessary neurological and chemical
+structures that will allow the “flow” of energy between them to be
+reestablished. It takes time in your system for the conscious mind to
+“catch up with” the altered bodily imprint. At first the new imprint
+alterations “do not compute” within the mental body and a “mental
+blank spot” is left until the organism re-balances itself. When the mental
+facility integrates the new imprint “flashes” of memory will then come
+into conscious awareness, most often “triggered” through the associative
+process. That is, a sensory perception (sight, smell, noise, etc.), will
+trigger the release of the new memory into awareness. Such memories
+can also be found through techniques like hypnosis, where the
+conscious mind is slightly disassociated from its focus within the
+present moment and is encouraged to traverse cellular memory. Often
+there will be memory of an odd event (“missing time”, a UFO sighting,
+or uncharacteristic emotional or behavioral reaction, etc....), surrounding
+the event which has not yet surfaced into conscious memory. Hypnosis
+would then serve to assist the mind to translate and integrate more of the
+new imprint, bringing it to the surface of memory. The event of
+sequential memory of the abduction returning to the abductee marks the
+point of integration of the new cellular imprint; the “mind has caught up
+with the experiences of the body” so to speak. It constitutes the return of
+the full consciousness (which was fragmented during the event) to the
+focus within the present time, or the return of consciousness to its
+original frequency band.
+To integrate the full imprint of such a multi-time event the
+human organism literally manufactures new, minute neurotransmitters
+and nerve networks to accommodate the altered DNA imprint. Your
+three-dimensional instruments presently cannot record most of these
+activities as these instruments are “keyed” or “tuned” to only the three-
+dimensional time coordinate in your particular frequency. You may
+eventually be able to chart the “results” (the portion of this activity that
+does take place within the three-dimensional frequency) of such base
+code manipulations, but you will not find the “cause” as it exists outside
+
+of the three-dimensional frequency band in which your instruments
+have their being.
+Abduction episodes following the format just described would
+be considered clear-cut abductions. They are orchestrated in a straight-
+forward manner, transmutation and alteration of form through the
+process of transmigration. Not all abductions are clear-cut. Clear-cut
+manipulations are carried out upon those who possess a biological
+organism that can withstand the rigors of transmigration. Most of your
+population, at the present time, cannot biologically endure such
+manipulation. Some abduction cases involve partial use of
+transmigration in combination with tactics of perceptual interference,
+whereby holographic inserts (as described in previous sections) are used
+to “cloak” the abductee’s perception of the abduction event prior to the
+“splitting” of awareness and transmigration. In these cases you will
+often find “cover memories” that will emerge in place of or in
+conjunction with actual memories of the abduction event. Abductees
+may remember seeing wolves, owls, or humans instead of “aliens and
+spaceships.” The emotional reaction to these cover images will seem
+out of place, however, over-reactive to the seeming content. This is a
+clue to the possible application of cover memories and holographic
+inserts. This tactic is most often used to distract the subject long enough
+to instigate the splitting of awareness; it is a more delicate procedure in
+some subjects and takes more time to achieve. The inserts create a
+diversion from the actual events that would, of themselves, cause panic
+or hysteria, two conditions that can have dire effects during the
+“splitting” process.
+Still other types of abductions utilize holographic inserts
+exclusively. They are often used to create present-moment or
+remembered experiences of “traveling aboard a spacecraft” to distract the
+mental awareness of the abductee while electromagnetic alterations
+(using Keylonta) are performed on the body while it remains within the
+three-dimensional frequency. Here transmigration would not be involved.
+This type of abduction usually occurs when the subject's biology cannot
+tolerate the transmigration of dimensional movement. (Such as is the case
+with cattle and most other animal life indigenous to Earth. Some of your
+reported “cattle mutilations” occurred as a result of this type of
+experimentation.)
+There are two primary reasons that “alien abductions” occur:
+
+1. For abductee training: Though it may be difficult for you to
+believe, many humans have willingly agreed to participate in visitor
+projects. Most often these agreements were entered during the human's
+dream state through the subconscious facility. Many such agreements
+were arranged prior to birth, whereas the soul awareness of the
+incoming infant chose to accept as a possibility the fulfillment of a
+contract with souls who would not be manifesting in human form. (And
+yes, dear humans, for those of you who are unsure, you do indeed have
+a soul or an identity greater than what can be held within the confines of
+your matter-form.) We refer to these contracts as Soul Agreements.
+Abductions of this kind are not intrinsically intrusive but they may seem
+to be to the conscious personality who has not remembered the
+agreement or who has blocked the awareness of soul.
+Abductions involving soul agreements have many purposes.
+Most often the human is given information and lessons during the
+experience which will then be used to assist the abductors in the greater
+plan upon which all have agreed. The majority of these encounters serve
+to assist in the positive evolution of humanity. Though the abductee may
+never consciously remember what has been learned, the information and
+training will motivate him/her on the subconscious level toward
+fulfilling the greater purposes for which the soul had incarnated.
+2. For study, experimentation and genetic seeding by self-
+serving groups such as the unenlightened Zeta. Though the abductors in
+these cases are not deliberately initiating harm against their human
+subjects, neither are they operating under a contract of consent. Many
+abductors view the human in a manner similar to how the human views
+the animal and plant kingdoms. They simply do not consider the human
+as an intelligent life form, but rather as a natural resource that can be
+used and exploited for their own purposes. Humans who have worked to
+build the conscious connection to soul and who have a healthy flow of
+the souls energy running through them will usually not encounter such
+events. Often the human soul will allow for the event of violation to
+take place so that the individual will begin to reach for that soul
+connection. Humans have free will and do not have to follow the
+impulse of soul, though it is in the human’s best interest to do so. The
+soul and subconscious awareness will often allow for tragedies from the
+personality’s perspective if the personality has become so immersed in
+
+its finite identity that it blocks out cognition of and cooperation with the
+soul.
+Abductions that occur without soul agreements are a violation to
+the human subject. These events can be quite traumatic. (You might
+begin to speculate about how your laboratory mice might feel at the
+hands of your human scientists.) The human is viewed as a thing rather
+than a being with needs, desires and feelings. Human genetic material is
+quite valuable to some ET groups, and there are interspecies breeding
+experiments underway, particularly within the Zeta factions. The Zeta
+have had some success with this hybrid race and their experimentation
+continues. Self awareness and soul awareness are the human’s greatest
+protection from abduction violation.
+The abductee-training encounters are usually perceived by the
+human as traumatic until the personality moves through the fear of the
+unknown and actively pursues answers, support and validation of the
+experience. Once fear subsides further conscious contact is usually
+initiated by the teacher abductors and the human embarks upon a path of
+accelerated spiritual growth and awakening to the soul identity. Some
+abductees will begin to remember the soul agreements they had made
+and center the rest of their lives around fulfilling those agreements.
+In the abductions that involved violation of the human subject
+there is usually great fear, anger and a feeling of helplessness on the
+part of the abductee. Many such abductees will never have recall of their
+abduction experience, but may manifest psychological or emotional
+difficulties as the intrusion has registered on a subconscious level.
+Others will find recall and will be faced with trying to find a perspective
+on what they have experienced. Very little support exists for people who
+suffer this type of trauma. If they turn toward the government or
+authorities for answers and assistance they most often find their
+character attacked and their encounter invalidated. The medical and
+psychiatric professions presently offer little help to such people, as a
+general rule, because the possibility of the experience being valid does
+not fit into their belief paradigm. As more and more abduction cases
+come into public awareness and more abductees speak out about the
+encounters, a greater support network is emerging. (The Interior
+Government will resist this movement at every turn.)
+The most terrifying aspect of alien abduction for both groups of
+abductees is that no one seems to have any answers. Even if they can
+
+find the support network most within that network are uncertain as to
+what they are dealing with in terms of the abductors. Comfort may be
+found in sharing that uncertainty, but peace and understanding may still
+seem quite elusive. It is for this reason that we have brought this
+information to you, hoping to reach those of you who need it most.
+Those of you who need to understand the reasons and purposes behind
+the alien abduction experience—we bring to you information that is new
+to your time, but it is indeed timely. We hope to inspire you to learn
+more about the nature of your reality and the very real aspect of your
+reality called alien abduction.
