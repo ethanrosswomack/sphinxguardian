@@ -1,0 +1,4 @@
+# ANGELIC HUMANITY’S ORIGINAL SACRED MISSION
+
+ANGELIC HUMANITY’S ORIGINAL SACRED MISSION
+•  The Divine Commission of the Angelic Human Race, the Sacred Mission
