@@ -1,0 +1,3 @@
+# STAR CRYSTAL SEAL ACTIVATES #6 D-5/D-6 INDIGO STAR CRYSTAL, In 8thchakra between chakras 4 & 5
+
+STAR CRYSTAL SEAL ACTIVATES: #6 D-5/D-6 INDIGO STAR CRYSTAL, In 8thchakra between chakras 4 & 5

@@ -1,0 +1,4 @@
+# 12-TRIBES SEEDING-3 GENETIC ASCENDANCY
+
+12-TRIBES SEEDING-3 GENETIC ASCENDANCY
+• Urtite-Cloister Host Race for Seeding-3 12-Tribes Races

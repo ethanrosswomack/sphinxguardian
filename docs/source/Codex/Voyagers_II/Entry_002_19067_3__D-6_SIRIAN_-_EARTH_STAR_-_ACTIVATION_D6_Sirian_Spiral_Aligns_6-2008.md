@@ -1,0 +1,3 @@
+# 3  D-6 SIRIAN - EARTH STAR - ACTIVATION D6 Sirian Spiral Aligns 6/2008
+
+3  D-6 SIRIAN - EARTH STAR - ACTIVATION: D6 Sirian Spiral Aligns 6/2008

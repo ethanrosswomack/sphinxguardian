@@ -1,0 +1,4 @@
+# 1  D-4 SOLAR - HEART STAR - ACTIVATION D-4 Solar Spiral Aligns 5/5/2000
+
+1  D-4 SOLAR - HEART STAR - ACTIVATION: D-4 Solar Spiral Aligns 5/5/2000
+'DATES AVAILABLE FOR ACTIVATION: 5/5/2000 - 2022 general populations
