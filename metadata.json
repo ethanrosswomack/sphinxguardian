@@ -2,7 +2,19 @@
   {
     "title": "Voyagers Book 1 - Sphinx Protocol",
     "file": "Source/Voyagers-1-SphinxProtocol.pdf",
-    "codex_entry": "Codex/Entry_001_OriginOfTheGuardians.md",
+    "codex_entry": "Codex/Entry_000_SphinxProtocol.md",
     "tags": ["Guardians", "Atlantean", "Foundations"]
+  },
+  {
+    "title": "Voyagers I – The Sleeping Abductees",
+    "file": "Source/voyagers-1-the-sleeping-abductees.pdf",
+    "codex_entry": "Codex/Entry_001_Voyagers_I_The_Sleeping_Abductees.md",
+    "tags": ["Voyagers", "UFOs", "Abduction", "Keylonta", "Guardians"]
+  },
+  {
+    "title": "Voyagers II – Secrets of Amenti (Expanded Second Edition)",
+    "file": "Source/Voyagers_The_Secrets_of_Amenti_Volume_II (2022_12_07 01_21_23 UTC).pdf.pdf",
+    "codex_entry": "Codex/Entry_002_Voyagers_II_Secrets_of_Amenti.md",
+    "tags": ["Voyagers", "Amenti", "Seeding", "Ascension", "Guardian Alliance"]
   }
 ]
