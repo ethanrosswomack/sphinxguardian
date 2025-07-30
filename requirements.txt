@@ -1,7 +1,6 @@
 sphinx
-sphinx_rtd_theme
 myst-parser
-sphinx-sitemap
-sphinx-autobuild
-sphinx-autosectionlabel
 sphinx-copybutton
+sphinx-sitemap
+sphinx-autobuild==2023.3.24
+sphinx-rtd-theme
