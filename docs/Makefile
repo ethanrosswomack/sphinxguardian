@@ -16,7 +16,7 @@ help:
 
 # Catch-all target: route all unknown targets to Sphinx using the new
 html:
-	$(SPHINXBUILD) -b dirhtml "$(SOURCEDIR)" "$(BUILDDIR)/html"
+	$(SPHINXBUILD) -b html -E "$(SOURCEDIR)" "$(BUILDDIR)/html"
 
 # "make mode" option.  $(O) is meant as a shortcut for $(SPHINXOPTS).
 %: Makefile

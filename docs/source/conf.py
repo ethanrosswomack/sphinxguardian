@@ -37,4 +37,10 @@ exclude_patterns = []
 # -- Options for HTML output -------------------------------------------------
 # https://www.sphinx-doc.org/en/master/usage/configuration.html#options-for-html-output
 
-html_static_path = ['_static']
+html_static_path = []
+html_search = False
+gettext_compact = False
+html_copy_source = False
+html_extra_path = []
+locale_dirs = []
+add_module_names = False
