@@ -21,7 +21,18 @@ release = 'v1.0'
 extensions = [
   "myst_parser",
   "sphinx_sitemap",
+  "sphinx.ext.autosectionlabel",
+  "sphinx.ext.todo",
+  "sphinx.ext.githubpages",
+  "sphinx.ext.intersphinx",
+  "sphinx_copybutton",
+  "sphinx.ext.viewcode",
+  "ablog",
 ]
+
+myst_enable_extensions = ["colon_fence"]
+
+autosectionlabel_prefix_document = True
 
 # Use read-the-docs theme
 html_theme = "sphinx_rtd_theme"

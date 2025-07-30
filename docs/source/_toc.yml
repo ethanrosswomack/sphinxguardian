@@ -1,0 +1,7 @@
+format: jb-book
+root: index
+
+chapters:
+ - file: index
+ - glob: Codex/Voyagers_I/*.md
+ - glob: Codex/Voyagers_II/*.md
