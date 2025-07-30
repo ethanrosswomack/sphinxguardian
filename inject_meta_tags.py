@@ -1,7 +1,7 @@
 import os
 from bs4 import BeautifulSoup
 
-HTML_DIR = "docs/build/html"
+HTML_DIR = "docs"
 
 meta_tags = [
   {
