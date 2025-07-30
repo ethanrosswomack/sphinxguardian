@@ -13,6 +13,6 @@ Welcome to the Return of the Bird Tribes.
 :caption: Codex Index
 :glob:
 
-Codex/Voyagers_I/*.md
-Codex/Voyagers_II/*.md
+Codex/Voyagers_I/*
+Codex/Voyagers_II/*
 ```
