@@ -20,10 +20,14 @@ release = 'v1.0'
 
 extensions = [
   "myst_parser",
+  "sphinx_sitemap",
 ]
 
 # Use read-the-docs theme
 html_theme = "sphinx_rtd_theme"
+html_baseurl = "https://returnofthebirdtribes.com/"
+html_file_suffix = ".html"
+html_link_suffix = ".html"
 
 # Recognize Markdown files
 source_suffix = {
