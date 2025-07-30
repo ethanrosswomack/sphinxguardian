@@ -1,0 +1,3 @@
+# Amenophis IV.
+
+Amenophis IV.
