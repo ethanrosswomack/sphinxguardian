@@ -2,3 +2,6 @@ sphinx
 sphinx_rtd_theme
 myst-parser
 sphinx-sitemap
+sphinx-autobuild
+sphinx-autosectionlabel
+sphinx-copybutton
